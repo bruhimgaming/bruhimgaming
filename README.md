@@ -27,4 +27,5 @@ now fucking leave me alone...
 also my skills are down under here.
 [![my fucking skills](https://skillicons.dev/icons?i=aws,gcp,azure,react,vue,flutter,java,nodejs,html,css,js,docker,git,powershell,npm,mint,linux,linkedin,gitlab,github,dotnet,discordjs,bots,discord,cloudflare,blender,au,ae,androidstudio,apple,arch,arduino,windows,twitter&perline=10)](https://skillicons.dev)
 now fr leave me alone...
-also heres a gift! 🖕🖕🖕🖕🖕🖕🖕🖕🖕🖕🖕🖕🖕 stop reading this 
+
+🖕🖕🖕🖕🖕🖕 stop reading this 
