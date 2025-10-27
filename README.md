@@ -16,15 +16,25 @@ Here are some ideas to get you started:
 -->
 
 I am bruh, I like to code, game, and do random stuff.
+
 this is my main btw.
+
 but i am from [trollbox](www.windows93.net/trollbox) which is a chatting platform.
+
 i own idkbot on there.
+
 but if u wanna reach me my email is <a href="mailto: bruhwillgame@proton.me">my proton email</a>
+
 also dont fucking ask for my pronouns.
+
 my discord username is bruhwillgaming
+
 my discord server is [cat club](https://discord.gg/QqbzgWXUp3)
+
 now fucking leave me alone...
+
 also my skills are down under here.
+
 [![my fucking skills](https://skillicons.dev/icons?i=aws,gcp,azure,react,vue,flutter,java,nodejs,html,css,js,docker,git,powershell,npm,mint,linux,linkedin,gitlab,github,dotnet,discordjs,bots,discord,cloudflare,blender,au,ae,androidstudio,apple,arch,arduino,windows,twitter&perline=10)](https://skillicons.dev)
 
 now fr leave me alone...
